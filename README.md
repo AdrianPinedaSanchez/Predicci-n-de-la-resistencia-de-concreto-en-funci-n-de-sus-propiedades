@@ -1,0 +1,1 @@
+# Predicci-n-de-la-resistencia-de-concreto-en-funci-n-de-sus-propiedades
